@@ -11,7 +11,7 @@ https://scuideas.com/root/wang_zhan_guan_li/ru_he_li_yong_xampp_zai_ben_di_ge_re
 
 
 
-在服务器端恢复的文章还在写。
+在服务器端恢复的文章见这里：https://pan.scuideas.com/show/%E6%9C%8D%E5%8A%A1%E5%99%A8%E7%AB%AF%E7%9A%84%E5%A4%87%E4%BB%BD%E6%81%A2%E5%A4%8D.mp4
 
 
 
